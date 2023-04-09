@@ -1,1 +1,0 @@
-# Artificial-intelligence-basics-and-application
